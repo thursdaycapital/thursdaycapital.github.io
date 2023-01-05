@@ -3,11 +3,17 @@
 
 # 我们的愿景是星期四自由 ！Our vision is Thursday Freedom!
 
-##  thursday capital 于2023年1月5日宣布完成高达0.05万美元A轮融资，
+##  thursday capital 于2023年1月5日宣布完成高达0.05万美元A轮及战略轮融资
 
 该轮融资由[@libapi](https://twitter.com/libapi_)领投，[@0xCatherin](https://twitter.com/0xCatherin)
 
-smqclub 成员参投，高达0.05万美元A轮融资。正在寻求以1美元B轮融资，
+smqclub 成员参投，高达0.05万美元A轮及战略轮融资。
+
+估值4396美元正在寻求以1美元B轮融资公开战略轮
+
+鉴于当前kfc引发的热度和情绪，B轮战略博弈短期或有机会，
+
+但可能长期不中奖，用户需谨慎参与。
 
 ![image](https://user-images.githubusercontent.com/26118314/210798642-24d02394-95e3-43a0-a106-40bd11d9eb0b.png)
 
@@ -19,7 +25,7 @@ B轮融资参投方式 /  参投平台为 [syndicate.io](https://syndicate.io/) 
 ![image](https://user-images.githubusercontent.com/26118314/210803093-c92c3441-632d-4a88-82f2-75996b46e77e.png)
 
 
-每周抽取幸运A/B轮融资大鳄 进行星期四自由  [请点击自由](https://twitter.com/McDonalds)
+每周抽取1位幸运A/B轮融资大鳄 进行星期四自由  [请点击自由](https://twitter.com/McDonalds)
 
 独自一人远离家乡在深圳打工，同事欺我，老板骂我，顾客打我，我流浪在上下九街头，衣衫褴褛，身无分文，活得不如一条流浪狗。
 
