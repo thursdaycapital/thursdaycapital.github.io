@@ -1,3 +1,7 @@
+![image](https://user-images.githubusercontent.com/26118314/210809367-1bd17414-3bc5-432a-a9b4-95219ca5889b.png)
+
+
+
 我们的愿景是星期四自由 ！
 
 thursday capital 于2023年1月宣布完成高达0.05万美元A轮融资，
