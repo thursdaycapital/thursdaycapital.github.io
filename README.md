@@ -13,7 +13,7 @@ https://app.syndicate.io/clubs/0x10002930C1C1Ba65d38999956DB0e5A8eB95F8cB?chain=
 
 ![image](https://user-images.githubusercontent.com/26118314/210803093-c92c3441-632d-4a88-82f2-75996b46e77e.png)
 
-每周抽取幸运B轮融资大鳄 进行星期四自由
+每周抽取幸运A/B轮融资大鳄 进行星期四自由
 
 ![image](https://user-images.githubusercontent.com/26118314/210804233-8b445504-7c5d-4459-b6ce-ffe6ee069881.png)
 
