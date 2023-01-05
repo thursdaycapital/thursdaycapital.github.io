@@ -18,7 +18,7 @@ smqclub 成员参投，高达0.05万美元A轮及战略轮融资。
 
 B轮融资参投方式 /  参投平台为 [syndicate.io](https://syndicate.io/) 限制99人 
 
-[点击参与B轮融资](https://app.syndicate.io/clubs/0x10002930C1C1Ba65d38999956DB0e5A8eB95F8cB?chain=polygon)
+[点击参与B轮融资仅限1美元](https://app.syndicate.io/clubs/0x10002930C1C1Ba65d38999956DB0e5A8eB95F8cB?chain=polygon)
 
 ![image](https://user-images.githubusercontent.com/26118314/210803093-c92c3441-632d-4a88-82f2-75996b46e77e.png)
 
