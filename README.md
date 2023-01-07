@@ -5,7 +5,7 @@
 
 ##  thursday capital 于2023年1月5日宣布完成高达0.05万美元A轮及战略轮融资
 
-该轮融资由[@libapi](https://twitter.com/libapi_)领投，[@0xCatherin](https://twitter.com/0xCatherin)
+该轮融资由[@libapi](https://twitter.com/libapi_)，[@0xCatherin](https://twitter.com/0xCatherin)
 
 smqclub 成员参投，高达0.05万美元A轮及战略轮融资。
 
@@ -13,20 +13,29 @@ smqclub 成员参投，高达0.05万美元A轮及战略轮融资。
 
 鉴于当前kfc引发的热度和情绪，B轮战略博弈短期或有机会，
 
+
+
 ![image](https://user-images.githubusercontent.com/26118314/210798642-24d02394-95e3-43a0-a106-40bd11d9eb0b.png)
 
 
-B轮融资参投方式 /  参投平台为 [syndicate.io](https://syndicate.io/) 限制99人 
 
-[点击参与B轮融资仅限1美元](https://app.syndicate.io/clubs/0x10002930C1C1Ba65d38999956DB0e5A8eB95F8cB?chain=polygon)
 
-![image](https://user-images.githubusercontent.com/26118314/210803093-c92c3441-632d-4a88-82f2-75996b46e77e.png)
+
+
+
+### 2023/1/7 thursday capital 星期四资本宣布与[捡瓶子资本](https://twitter.com/QianMo85229356) 形成战略合作，
+捡瓶子可以在步行街或者小区里看看，或者是公园，人流量多的地方。
+共享垃圾桶共享瓶子托举的广阔未来。未来我们还可以在元宇宙里捡瓶子，
+这个大胆的预测，但是我相信这不是天马行空。
+
+
+
+
 
 
 Our vision is Thursday Freedom! Our vision is Thursday Freedom!  [请点击自由](https://twitter.com/McDonalds)
 
 独自一人远离家乡在深圳打工，同事欺我，老板骂我，顾客打我，我流浪在上下九街头，衣衫褴褛，身无分文，活得不如一条流浪狗。
-
 天地浩大，却没有我的容身之处。我想问一问苍天，明天肯德基疯狂星期四，谁请我吃?
 
 
