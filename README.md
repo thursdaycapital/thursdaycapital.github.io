@@ -15,6 +15,7 @@ smqclub 成员参投，高达0.05万美元A轮及战略轮融资。
 
 
 
+
 ![image](https://user-images.githubusercontent.com/26118314/210798642-24d02394-95e3-43a0-a106-40bd11d9eb0b.png)
 
 
@@ -23,17 +24,23 @@ smqclub 成员参投，高达0.05万美元A轮及战略轮融资。
 
 
 
-### 2023/1/7 thursday capital 星期四资本宣布与[捡瓶子资本](https://twitter.com/QianMo85229356) 形成战略合作，
+## 2023/1/7 thursday capital 星期四资本宣布与[捡瓶子资本](https://twitter.com/QianMo85229356) 形成战略合作，
 捡瓶子可以在步行街或者小区里看看，或者是公园，人流量多的地方。
+
+小时候的梦想当超人，长大后真的实现了，现在每天在公园一个人看十个垃圾桶，
+
 共享垃圾桶共享瓶子托举的广阔未来。未来我们还可以在元宇宙里捡瓶子，
+
 这个大胆的预测，但是我相信这不是天马行空。
 
+![image](https://user-images.githubusercontent.com/26118314/211154110-e94873e2-b400-46ac-9d66-b4b0bf63c43a.png)
 
 
 
 
 
-Our vision is Thursday Freedom! Our vision is Thursday Freedom!  [请点击自由](https://twitter.com/McDonalds)
+
+## Our vision is Thursday Freedom! Our vision is Thursday Freedom!  [请点击自由](https://twitter.com/McDonalds)
 
 独自一人远离家乡在深圳打工，同事欺我，老板骂我，顾客打我，我流浪在上下九街头，衣衫褴褛，身无分文，活得不如一条流浪狗。
 天地浩大，却没有我的容身之处。我想问一问苍天，明天肯德基疯狂星期四，谁请我吃?
