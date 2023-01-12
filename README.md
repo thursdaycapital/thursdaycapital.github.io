@@ -37,10 +37,44 @@ smqclub 成员参投，高达0.05万美元A轮及战略轮融资。
 相关业务业绩未来能否为资本指标带来具体影响，存在不确定性。
 
 敬请广大投资者注意投资风险。
+
 特此公告。
 
 
 ![image](https://user-images.githubusercontent.com/26118314/211154110-e94873e2-b400-46ac-9d66-b4b0bf63c43a.png)
+
+
+
+## 2023/1/12 @Thursday_V宣布与疯狂星期四资本
+
+形成战略合作[疯狂星期四资本](https://twitter.com/CTuscapital)，共同为波多野结衣合作拍摄web3动作片，
+
+现决定全网选拔男主角2位，
+
+相关业务业绩未来能否为资本指标带来具体影响，存在不确定性。
+
+敬请广大投资者注意投资风险。
+
+特此公告。
+
+![image](https://user-images.githubusercontent.com/26118314/212035028-f3773e46-dd90-41a3-b2d3-f09f3bf0b500.png)
+
+
+
+## 个人合作 饱哥
+
+疯狂星期四
+
+这个星期四他没有缺席，
+
+[饱哥](https://twitter.com/smqclaske)宣布与星期四资本thursdaycapital
+
+形成战略合作关系，今晚请大家吃鸡
+
+![image](https://user-images.githubusercontent.com/26118314/212034954-04ac0f89-dde2-4f83-9b1d-36464ce74ef1.png)
+
+
+
 
 
 
